@@ -76,14 +76,14 @@ DONT FORGET TO FORK 🍴 & STAR 🌟 REPO😇
 HII DEARS FRIENDS IF YOU WANT ANY HELP SO YOU CAN CONTACT↘︎ WITH ME WIA WHATSAPP ITS ME ALI࿐➺
 
 <p align="">
-<a href='https://wa.me/+94727319036?text=*Hye+QUEEN+RASHU+MD+BOT+OWNER🥰💗+I+Am+Comming+repo+💗' target="_blank"><img alt='Replit' src='https://img.shields.io/badge/ Whatsapp -25D366?style=for-the-badge&logo=whatsapp&logoColor=white'/< width=150 height=28/p></a> </a>
+<a href='https://wa.me/+94727319036?text=*Hye+QUEEN+RASHU+MD+BOT+OWNER🥰💗+I+Am+Comming+repo+💗*' target="_blank"><img alt='Replit' src='https://img.shields.io/badge/ Whatsapp -25D366?style=for-the-badge&logo=whatsapp&logoColor=white'/< width=150 height=28/p></a> </a>
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 
 
 ## 🪀 WHATSAPP CHANNEL 
 STAY CONNECTED WITH THE LATEST UPDATES AND COMMUNITY BY JOINING OUR OFFICIAL WHATSAPP GROUP AND CHANNEL. YOU CAN ALSO CONTACT THE OWNER DIRECTLY.
 
-[![WhatsApp Channel](https://img.shields.io/badge/JOIN-WHATSAAP%20CHANNEL-25D366?style=for-the-badge&logo=whatsapp)]https://whatsapp.com/channel/0029VaicB1MISTkGyQ7Bqe23)
+[![WhatsApp Channel](https://img.shields.io/badge/JOIN-WHATSAAP%20CHANNEL-25D366?style=for-the-badge&logo=whatsapp)](https://whatsapp.com/channel/0029VaicB1MISTkGyQ7Bqe23)
 
 ## 🪀 WHATSAPP GROUP
 JOINING OUR OFFICIAL WHATSAPP GROUP AND CHANNEL. YOU CAN ALSO CONTACT THE OWNER DIRECTLY.
